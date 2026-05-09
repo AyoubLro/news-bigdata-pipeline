@@ -1,9 +1,8 @@
 
 ## 👨‍💻 Auteur
 
-**Ayoub Louraoui - abdelkhaleq Ibrahim - mahfoud Mohamed Yassine **
+**Ayoub Louraoui **
 
-## 👨‍💻 Groupe : 4IADM G1
 
 
 
